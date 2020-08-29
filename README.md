@@ -1,1 +1,6 @@
-# Fun-Project
+# Fun Collaboration Project with @kvong
+
+## Ideas
+- 
+- 
+- 
